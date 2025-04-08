@@ -127,7 +127,7 @@ Oppgave 2: Ferdig
 
 Oppgave 3: Ferdig
 
-Oppgave 4: Under arbeid
+Oppgave 4: Ferdig
 
 Oppgave 5: Ferdig
 
